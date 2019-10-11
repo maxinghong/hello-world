@@ -4,4 +4,4 @@
 
 ## Only Mary Donaldson：The only golden phoenix
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg）
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg) 
