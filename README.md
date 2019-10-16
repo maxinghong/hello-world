@@ -5,3 +5,7 @@
 ## Only Mary Donaldson：The only golden phoenix
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg) 
+
+## Tree of friendship
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Mary%20Donaldson3.jpg)
