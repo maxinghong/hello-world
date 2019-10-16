@@ -9,3 +9,6 @@
 ## Tree of friendship
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Mary%20Donaldson3.jpg)
+
+## The only golden phoenix
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Tree%20of%20friendship.jpg)
