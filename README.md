@@ -73,3 +73,6 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bar.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
+
+带着2亿美金现金来谈，否则全是假谈空谈，没人陪你们谈！投资2亿美金只占10%股份！平时没有话语权，只有年终董事会开会权及公司分红权！
+说白了你花2亿美金购幅世界名画！也许公司经营的好：将来还年年有分红！公司日常经营与投资者无关！都由马兴洪负责Mary Donaldson督查！
