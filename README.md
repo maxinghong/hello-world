@@ -62,3 +62,12 @@
                                                                                      2019年10月18日
                                                                                             
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Mary%20Donaldson.jpg)
+
+## **酒文化传媒投资有限公司开始面向全球招商：投资金额最低2亿美金！
+
+###如果合作成功！赠送世界名画一幅：目前至少价值1亿美金起步！
+
+###(Mary Donaldson: 马兴洪项目或作品的唯一督查代表!)
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bar.jpg)
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
