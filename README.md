@@ -5,7 +5,7 @@
 
 ## Only Mary Donaldson：The only golden phoenix
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg) 
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Mary%20Donaldson1.jpg) 
 
 ## Tree of friendship
 
@@ -58,5 +58,7 @@
 
 今当远离，临表涕零，不知所言。
 
-                                                                                               马兴洪
+                                                                                               马兴洪)
                                                                                             2019年10月18日
+                                                                                            
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Mary%20Donaldson.jpg)
