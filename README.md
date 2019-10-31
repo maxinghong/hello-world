@@ -13,3 +13,7 @@
 ## 稳赚不赔的项目：你不来投资！where are you going?
 
 ![图片名称](http://youg.cw634.4everdns.com/investor.jpg)
+
+## 请遵照以下流程进行......
+
+![图片名称](http://youg.cw634.4everdns.com/hello-world.jpg)
