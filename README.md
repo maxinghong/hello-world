@@ -11,3 +11,5 @@
 ![图片名称](http://sh.sinaimg.cn/2011/0503/U5952P18DT20110503132211.jpg)
  
 ## 稳赚不赔的项目：你不来投资！where are you going?
+
+![图片名称](http://youg.cw634.4everdns.com/investor.jpg)
