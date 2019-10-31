@@ -14,6 +14,6 @@
 
 ![图片名称](http://youg.cw634.4everdns.com/hello-world.jpg)
 
-## 请遵照以上流程进行......
+## 第四步：赠送价值1亿美金的世界名画一幅
 
 ![图片名称](http://youg.cw634.4everdns.com/investor.jpg)
