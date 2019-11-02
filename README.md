@@ -1,4 +1,4 @@
-## 中华文化 博大精深 问世界谁与争锋！ 
+## 中华文化 博大精深 问世界:谁与争锋！  
 
 ![图片名称](http://youg.cw634.4everdns.com/Ma%20XingHong.jpg)
 
