@@ -1,6 +1,6 @@
 ## 中华文化 博大精深 问世界谁与争锋！ 
 
-![图片名称](http://youg.cw634.4everdns.com/Ma XingHong.jpg)
+![图片名称](http://youg.cw634.4everdns.com/Ma%20XingHong.jpg)
 
 ## 2亿美金现金带来了没有？如果没带2亿美金：请你打哪来回哪去！who are you ?
 
