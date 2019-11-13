@@ -3,3 +3,6 @@
 ![图片名称](http://youg.cw634.4everdns.com/fate_m.jpg)
 
 ![图片名称](http://youg.cw634.4everdns.com/start.gif)
+
+![图片名称](http://youg.cw634.4everdns.com/key.jpg)
+
