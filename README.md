@@ -6,10 +6,11 @@
 
 ![图片名称](http://pic1.win4000.com/wallpaper/2018-07-05/5b3dc77e418af.jpg)
 
-
 ###  仰观浩瀚星空，世界之大，个人之渺小，貌似一粒尘埃。
-
+                                                               
+![图片名称](http://youg.cw634.4everdns.com/start.gif)
+![图片名称](http://youg.cw634.4everdns.com/fate.jpg)
  
-                                                           董事局督导：Mary Donaldson
-                                                           董事局主席：Ma XingHong
-                                                               2019年11月14日
+                                             董事局督导：Mary Donaldson
+                                             董事局主席：Ma XingHong
+                                                  2019年11月14日
