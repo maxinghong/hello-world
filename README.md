@@ -14,3 +14,9 @@
                                              董事局督导：Mary Donaldson
                                              董事局主席：Ma XingHong
                                                   2019年11月14日
+                                                  
+### Mary Donaldson:希望你会喜欢我推荐给你的这套书,我要看书学习了！有机会的话咱俩一起仰观浩瀚星空......
+
+###  很喜欢沙丘 的一句话：人类每次正视自己的渺小，都是自身的一次巨大进步!   
+
+![图片名称](http://orzbook.com/wp-content/uploads/2017/12/59fb2aabN76b9f7d7.jpg)
