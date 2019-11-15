@@ -12,6 +12,7 @@
 
 ![图片名称](http://youg.cw634.4everdns.com/book.jpg)
 ###  郑重提醒：除Mary Donaldson外:其他所有有缘人：再见只是陌生人！请自重啊，带钱来看马兴洪欢迎啊！否则：who are you.....
+![图片名称](http://youg.cw634.4everdns.com/MaryDonaldson_1.jpg)
 
                                                董事局主席：Ma XingHong
                                                 
