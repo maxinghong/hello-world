@@ -17,6 +17,7 @@
 ###  第二步：下一站梦想(西藏)!
 
 ![图片名称](http://upload.nfncb.cn/gw/729386-851ca8c84523ff004020ee9a193ea806.png)
+
                                                董事局主席：Ma XingHong
                                                 
                                                   
