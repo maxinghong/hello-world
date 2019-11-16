@@ -13,9 +13,13 @@
 ![图片名称](http://upload.nfncb.cn/gw/729386-851ca8c84523ff004020ee9a193ea806.png)
 
                                                董事局主席：Ma XingHong
-###  梦想是用来实现的！                                              
+                                               
+###  自己的梦想是用来实现的：可不是整天盯着别人的梦想，整天咀嚼着别人的青春和故事！                                        
 ![图片名称](http://youg.cw634.4everdns.com/c1.jpg)
+
 ![图片名称](http://youg.cw634.4everdns.com/c2.jpg)
+
 ![图片名称](http://youg.cw634.4everdns.com/qhh.jpg)
+
 ![图片名称](http://youg.cw634.4everdns.com/22.jpg)
                                                 
