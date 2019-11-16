@@ -1,29 +1,21 @@
 ##  仰观浩瀚星空，世界之大，个人之渺小，貌似一粒尘埃......
-
 ### 亦是第三步 
-
 ![图片名称](http://photocdn.sohu.com/20150824/mp29003069_1440403694177_4.jpeg)
 ###  郑重提醒： 除Mary Donaldson外:其他所有有缘人：再见只是陌生人！请自重啊，带钱来看马兴洪欢迎啊！否则：who are you.....
 ![图片名称](http://pic1.win4000.com/wallpaper/2018-07-05/5b3dc77e418af.jpg)
-
 ### 亦是第四步  董事局督导：Mary Donaldson
-
 ![图片名称](http://p0.ifengimg.com/pmop/2017/0901/780DE68757191D0928118AE636FD7BCADD7EE2F3_size110_w1280_h824.jpeg)
-
 ### 亦是第五步  读万卷书亦要行万里路 
 ![图片名称](http://pic27.nipic.com/20130320/10819810_134331325000_2.jpg)
-
 ![图片名称](http://youg.cw634.4everdns.com/book.jpg)
-
 ![图片名称](http://youg.cw634.4everdns.com/MaryDonaldson_1.jpg)
-
 ###  第二步：下一站梦想(西藏)!
-
 ![图片名称](http://upload.nfncb.cn/gw/729386-851ca8c84523ff004020ee9a193ea806.png)
 
                                                董事局主席：Ma XingHong
-                                               
+###  梦想是用来实现的！                                              
+![图片名称](http://youg.cw634.4everdns.com/c1.jpg)
+![图片名称](http://youg.cw634.4everdns.com/c2.jpg)
+![图片名称](http://youg.cw634.4everdns.com/qhh.jpg)
+![图片名称](http://youg.cw634.4everdns.com/22.jpg)
                                                 
-有趣的故事：
-
-有一天，一只小猴子下山来，它走到一块玉米地里，看见玉米结得又大又多，非常高兴，就掰了一个，扛着往前走。 小猴子扛着玉米，走到一棵桃树下。它看见满树的桃子又大又红，非常高兴，就扔了玉米去摘桃子。 小猴子捧着几个桃子，走到一片瓜地里。它看见满地的西瓜又大又圆，非常高兴，就扔了桃子去摘西瓜。 小猴子抱着一个大西瓜往回走。走着走着，看见一只小兔蹦蹦跳跳的，真可爱。它非常高兴，就扔了西瓜去追小兔。 小兔跑进树林子，不见了。小猴子只好空着手回家去。 
