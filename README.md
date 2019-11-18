@@ -39,7 +39,9 @@
 
 ###  亦是第一步：商场即战场、在商言商！
 
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
+
 ###  亦是第二步：你们得了什么病啊？(郑重提醒：如果你们想找马兴洪治疗你们的病，第一 肯定是先要付钱的；第二 有些病能治好,有些病根本治不好。)
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
+
 
