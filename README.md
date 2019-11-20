@@ -16,10 +16,7 @@
 ![图片名称](http://upload.nfncb.cn/gw/729386-851ca8c84523ff004020ee9a193ea806.png)
 
                                                董事局主席：Ma XingHong
-                                               
-###  有些利国利民的招商项目（梦想）：如果有人替自己实现了，岂不是美哉！                                              
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.gif)
-
+                                                                                      
 ###  自己的梦想是用来实现的：可不是整天盯着别人的梦想，整天咀嚼着别人的青春和故事！         
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/qhh.jpg)
@@ -68,6 +65,6 @@
 对于许多人来说，贪婪是许多灾祸的根源。
 
 ### 第一步 Ma XingHong目前只有招商种地项目：（提醒）目前没有任何融资及门诊服务项目！
-
-### 第二步：  
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Land.jpg)
+### 第二步：  
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.gif)
