@@ -66,5 +66,5 @@
 
 ### 第一步 Ma XingHong目前只有招商种地项目：（提醒）目前没有任何融资及门诊服务项目！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Land.jpg)
-### 第二步：  
+### 第二步：（董事局督导：Mary Donaldson  董事局主席：Ma XingHong）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.gif)
