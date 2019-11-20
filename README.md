@@ -36,8 +36,9 @@
 小羊回答说，他仅仅站在河边喝水，并且又在下游，根本不可能把上游的水搅浑。狼见此计不成，又说道：“我父亲去年被你骂过。”小羊说，那时他还没有出生。狼对他说：“不管你怎样辩解，反正我不会放过你。”
 
 这说明，对恶人做任何正当的辩解也是无效的。
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Return_money.jpg)
-###  亦是第一步：商场即战场、在商言商！(欠马兴洪的钱：该还钱了吧！钱带来了没有.....)
+###  亦是第一步：商场即战场、在商言商！(欠马兴洪的钱：该还钱了吧！钱带来了没有.....就是喝喜酒：也要随份子钱的.....)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
 
