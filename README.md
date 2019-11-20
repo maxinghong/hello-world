@@ -8,7 +8,7 @@
 ### 亦是第五步  读万卷书亦要行万里路 
 ![图片名称](http://pic27.nipic.com/20130320/10819810_134331325000_2.jpg)
 
-###  Ma XingHong 寄语 Mary Donaldson(品读):
+###  Ma XingHong 寄语 Mary Donaldson(品读沙丘):
 ###  因：沙丘是人类星球文明生态学 ;  果：经久不衰的金典科幻学说巨著 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/book.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/MaryDonaldson_1.jpg)
@@ -68,3 +68,5 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Land.jpg)
 ### 第二步：（董事局督导：Mary Donaldson  董事局主席：Ma XingHong）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.gif)
+### 提醒：
+![图片名称](https://github.com/maxinghong/maxinghong.github.io/blob/master/5.jpg)
