@@ -9,7 +9,7 @@
 ![图片名称](http://pic27.nipic.com/20130320/10819810_134331325000_2.jpg)
 
 ###  Ma XingHong 寄语 Mary Donaldson 
-### （因：沙丘是人类星球文明生态学   果：经久不衰的金典科幻学说巨著） 
+### （因：沙丘是人类星球文明生态学 ;  果：经久不衰的金典科幻学说巨著） 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/book.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/MaryDonaldson_1.jpg)
 ###  第二步：下一站梦想(西藏)!
