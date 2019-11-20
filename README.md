@@ -37,6 +37,8 @@
 
 这说明，对恶人做任何正当的辩解也是无效的。
 
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Putin.jpeg)
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Return_money.jpg)
 ###  亦是第一步：商场即战场、在商言商！(欠马兴洪的钱：该还钱了吧！钱带来了没有.....就是喝喜酒：也要随份子钱的.....)
 
