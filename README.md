@@ -76,5 +76,6 @@
 ### 第二步：（董事局督导：Mary Donaldson  董事局主席：Ma XingHong）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.gif)
 ### 提醒：黑名单...........
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/trump.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/xajh.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/5.jpg)
