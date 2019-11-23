@@ -15,6 +15,10 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/star3.jpeg)
 
+##  这是什么kongfu:中国足疗！
+
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1574506130535&di=85b59a9d37eedbeb531d231b9e05001a&imgtype=0&src=http%3A%2F%2Fwww.tbw-hufu.com%2FtuhfJDEwLmFsaWNkbi5jb20vaTIvMjI4NjgzMjk3NC9PMUNOMDFCTU1mRHMxWHE4Tk5EejdxUV8hITIyODY4MzI5NzQkOQ.jpg)
+
 ##  友情提醒：
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/MaryDonaldson2.jpg)
