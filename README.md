@@ -6,6 +6,9 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
 
+##  缘
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Investment.jpg)
 
                       （董事局督导：Mary Donaldson、  董事局主席: Ma XingHong）
                       
