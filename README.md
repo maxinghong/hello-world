@@ -1,4 +1,4 @@
-##  敢问路在何方，路在脚下………
+##  敢问路在何方，路在你脚下………
 
 ![图片名称](https://imgditan2012.cang.com/201205/02/2012050221300091217327.jpg)
 
@@ -16,8 +16,9 @@
                        
                                            2019年11月25日
                                            
-                                           
- ## 酷
+  
+  
+ ##  酷
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
 
