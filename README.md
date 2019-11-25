@@ -6,10 +6,6 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
 
-## 酷
-
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
-
 ##  缘
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Investment.jpg)
@@ -19,3 +15,11 @@
                        望远镜观察员：金正恩（希望金委员长一如既往的观察：Mary Donaldson与Ma XingHong）
                        
                                            2019年11月25日
+                                           
+                                           
+ ## 酷
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
+
+
+
