@@ -24,6 +24,6 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
 
-##  未来团队成员招聘
+##  未来团队成员招聘:我们种地公司绝对拒绝招聘好吃懒做型人员！
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
