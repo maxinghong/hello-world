@@ -6,6 +6,10 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/investor.jpg)
 
+## 酷
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
+
 ##  缘
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Investment.jpg)
