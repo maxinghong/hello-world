@@ -1,3 +1,6 @@
+##  既然被马兴洪拉黑名单了：何必还继续自编自导自演下去......人还是要有点自知之明！who are you?
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Road.jpg)
+
 ##  敢问路在何方，路在你脚下………(放着好好的阳关大道不走,你们非要走阴沟里的独木桥:作死！)
 
 ![图片名称](https://imgditan2012.cang.com/201205/02/2012050221300091217327.jpg)
