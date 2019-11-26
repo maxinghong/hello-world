@@ -18,6 +18,8 @@
                                            
 ##  Mary Donaldson、金委员长 向你们二位说声再见：小哥哥我要去实现梦想去了，等实现完梦想后：有缘再见！
 
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bye.jpg)
+
 ###  Iet ssa iet ssa mu bbo,Ne iet ssa iet ssa mu bbo,Iet ssa iet ssa mu bbo,Ngat qop bop iet ssa mu bbo 忘了挥手忘了说再见,望一路珍重
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/goodbye.jpg)  
