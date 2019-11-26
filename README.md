@@ -16,8 +16,9 @@
                        
                                            2019年11月25日
                                            
-  
-  
+##  Mary Donaldson、金委员长 说声再见：小哥哥我要去实现梦想去了，等实现完梦想后：有缘再见！
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/goodbye.jpg)  
  
  
 ##  酷
