@@ -20,9 +20,11 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bye.jpg)
 
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/goodbye.jpg)  
+
 ###  Iet ssa iet ssa mu bbo,Ne iet ssa iet ssa mu bbo,Iet ssa iet ssa mu bbo,Ngat qop bop iet ssa mu bbo 忘了挥手忘了说再见,望一路珍重
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/goodbye.jpg)  
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/MaryDonaldson.jpg)
 
 
  
