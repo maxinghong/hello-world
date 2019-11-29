@@ -43,3 +43,5 @@
 ##  未来团队成员招聘:我们种地公司绝对拒绝招聘好吃懒做型人员！
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
+
+## 计划2020年： 拿到摩托车驾照！备注：所招聘的团队成员都要带头(骑行川藏线2150KM)或（摩旅西藏不得低于10000km）
