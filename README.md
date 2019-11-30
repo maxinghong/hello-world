@@ -49,3 +49,6 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
 
 ## 计划2020年： 拿到摩托车驾照！备注：所招聘的团队成员都要带头(骑行川藏线2150KM)或（摩旅西藏不得低于10000km）
+
+## 计划2022年： 骑上我心爱的小摩托（带上小女），去实现环318 滇藏线 丙察察 西藏大北线 317 摩旅西藏之梦！  
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/xz.jpg)
