@@ -1,3 +1,7 @@
+##  人要学会：知足常乐.................
+
+![图片名称](https://pic3.zhimg.com/v2-19c3a7927faf77d13e7aaa3094431754_r.jpg)
+
 ##  既然被马兴洪拉黑名单了：何必还继续自编自导自演下去......人还是要有点自知之明！who are you?
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Road.jpg)
 
