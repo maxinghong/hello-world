@@ -52,6 +52,10 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/xz.jpg)
 
+### 提醒：小女马舒琳小学毕业前的骑行旅行已经结束！梦想是用来实践的 可不是用来空谈的！
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/qhh.jpg)
+
 ### 未来团队成员招聘:我们种地公司绝对拒绝招聘好吃懒做型人员！
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
