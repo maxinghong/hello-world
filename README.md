@@ -43,12 +43,11 @@
 ### 提醒：小女马舒琳小学毕业前的骑行旅行已经结束！梦想是用来实践的 可不是用来空谈的！
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/qhh.jpg)
-
 ### 未来团队成员招聘:我们种地公司绝对拒绝招聘好吃懒做型人员！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
 ### 佩服..... (向2位70多岁的老先生致敬)：
 ![图片名称](https://5b0988e595225.cdn.sohucs.com/images/20170906/b13118e100f346ce9bdade5ad8570c22.jpeg)
 ![图片名称](http://img.newmotor.com.cn/UploadFiles/2014-02/laoge/W020131016381299685842.jpg)
 
-### 何必呢......？要不要继续............
+### who are you？ 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1575349486013&di=2efc8bb1c6c6892db47fbbb240c7d877&imgtype=0&src=http%3A%2F%2Fimg.bqatj.com%2Fimg%2F7c0cf7f7e46e44c5.jpg)
