@@ -1,7 +1,5 @@
 ##  人要学会：知足常乐.................
-
 ![图片名称](https://pic3.zhimg.com/v2-19c3a7927faf77d13e7aaa3094431754_r.jpg)
-
 ##  既然被马兴洪拉黑名单了：何必还继续自编自导自演下去......人还是要有点自知之明！who are you?
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Road.jpg)
 
@@ -60,8 +58,9 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/index.jpg)
 
-
 ### 佩服..... (向2位70多岁的老先生致敬)：
-
 ![图片名称](https://5b0988e595225.cdn.sohucs.com/images/20170906/b13118e100f346ce9bdade5ad8570c22.jpeg)
 ![图片名称](http://img.newmotor.com.cn/UploadFiles/2014-02/laoge/W020131016381299685842.jpg)
+
+### ..................
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1575349486013&di=2efc8bb1c6c6892db47fbbb240c7d877&imgtype=0&src=http%3A%2F%2Fimg.bqatj.com%2Fimg%2F7c0cf7f7e46e44c5.jpg)
