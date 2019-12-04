@@ -49,5 +49,5 @@
 ![图片名称](https://5b0988e595225.cdn.sohucs.com/images/20170906/b13118e100f346ce9bdade5ad8570c22.jpeg)
 ![图片名称](http://img.newmotor.com.cn/UploadFiles/2014-02/laoge/W020131016381299685842.jpg)
 
-### who are you？ 郑重提醒：你要负全责哦！另外：你愿意投资多少钱？你带钱来了没有啊？你不带钱来投资：你谁啊你？
+### who are you？ 郑重提醒：你要负全责哦！另外：你愿意投资多少钱？你带钱来了没有啊？你不带钱来投资：远远滚滚.....
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1575349486013&di=2efc8bb1c6c6892db47fbbb240c7d877&imgtype=0&src=http%3A%2F%2Fimg.bqatj.com%2Fimg%2F7c0cf7f7e46e44c5.jpg)
