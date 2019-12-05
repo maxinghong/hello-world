@@ -54,3 +54,5 @@
 
 ### 另外：你愿意投资多少钱：2亿美金还是10亿美金？你带钱来了没有啊？你不带钱来投资：远远滚滚.....
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1575518008740&di=68ca80ca296efb208aa26cf1df88d690&imgtype=0&src=http%3A%2F%2Fww2.sinaimg.cn%2Flarge%2F87417c60jw1f7l5b95bkkj20k00k0dhc.jpg)
+
+### 最后警告某些垃圾：历史是最好的证明！现在小哥哥马兴洪不清算你，不代表未来马兴洪不会清算你！当我决定清算你时：肯定是你罪该万死！
