@@ -11,7 +11,7 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Land.jpg)
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Investment.jpg)
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Investment_fate.jpg)
 
 
 
@@ -63,3 +63,5 @@
 
 ## 沙丘： 优雅来自城市,智慧来自沙漠！
 ![图片名称](http://pic24.nipic.com/20120926/4593363_150723648121_2.jpg)
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/fate_all.jpg)
