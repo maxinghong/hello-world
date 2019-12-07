@@ -26,13 +26,14 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/goodbye.jpg)  
 ###  Iet ssa iet ssa mu bbo,Ne iet ssa iet ssa mu bbo,Iet ssa iet ssa mu bbo,Ngat qop bop iet ssa mu bbo 忘了挥手忘了说再见,望一路珍重
  
-##  酷:我的中国梦.....
+##  酷:我的中国梦（平凡人生）.....
 
 ##  读万卷书:读书重要吗？狠重要（如果小哥哥马兴洪不读万卷书：小唐、小金啊 会主动来认识马兴洪？）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/okbook.jpg)
 ### 计划2020年： 拿到摩托车驾照！备注：所招聘的团队成员都要带头(骑行川藏线2150KM)或（摩旅西藏不得低于10000km）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
 ### 计划2023年： 等小女初中毕业时，骑上我心爱的小摩托（带上小女：马舒琳），去实现环318 滇藏线 丙察察 西藏大北线 317 摩旅西藏之梦！
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2_Ma.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/xz.jpg)
 ### 提醒：小女马舒琳小学毕业前的骑行旅行已经结束！梦想是用来实践的 可不是用来空谈的！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/qhh.jpg)
