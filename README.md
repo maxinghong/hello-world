@@ -33,10 +33,7 @@
 ### 计划2020年： 拿到摩托车驾照！备注：所招聘的团队成员都要带头(骑行川藏线2150KM)或（摩旅西藏不得低于10000km）
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Three_rounds.jpg)
 ### 计划2023年： 等小女初中毕业时，骑上我心爱的小摩托（带上小女：马舒琳），去实现环318 滇藏线 丙察察 西藏大北线 317 摩旅西藏之梦！
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1575108422881&di=f0c82659f50b33233e4616f95b9c8f30&imgtype=0&src=http%3A%2F%2Fpic.51yuansu.com%2Fpic3%2Fcover%2F03%2F19%2F44%2F5b64e172a8660_610.jpg)
-
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/xz.jpg)
-
 ### 提醒：小女马舒琳小学毕业前的骑行旅行已经结束！梦想是用来实践的 可不是用来空谈的！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/qhh.jpg)
 ### 未来团队成员招聘:我们种地公司绝对拒绝招聘好吃懒做型人员！
