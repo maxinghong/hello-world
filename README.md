@@ -57,3 +57,9 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/fate_all.jpg)
 ## 指环王三部曲：大结局！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/END.jpg)
+
+## Ma XingHong只是生意人（只且仅做合情合法的生意）！
+### 你愿意给马兴洪多少钱吗？
+### 100万美金:你只能获得100万美金的服务;1000万美金:你只能得到1000万美金的服务;1亿美金：你就能获得到1亿美金的价值...........
+
+### 你不给钱：你TMD是谁？GUN.....
