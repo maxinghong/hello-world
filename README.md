@@ -80,3 +80,6 @@
 ### 你不给钱：你TMD是谁？GUN.....
 ## 2019年最火中国字：GUN
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1576816082291&di=9a63f934ab83d81995f55fdd51cdd347&imgtype=0&src=http%3A%2F%2F06imgmini.eastday.com%2Fmobile%2F20180818%2F20180818201047_e228489a2f40f53cf97af705291c001f_4.jpeg)
+
+## 2020年最火中国字：SHA
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577083722800&di=1a1f4b1ee3eb074b5c22b78ad2b0c962&imgtype=0&src=http%3A%2F%2Fpic.baike.soso.com%2Fp%2F20131220%2F20131220162856-1401151506.jpg)
