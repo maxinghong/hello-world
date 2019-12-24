@@ -1,6 +1,7 @@
 ##  人要学会：知足常乐.................
 ![图片名称](https://pic3.zhimg.com/v2-19c3a7927faf77d13e7aaa3094431754_r.jpg)
 ##  既然被马兴洪拉黑名单了：何必还继续自编自导自演下去......人还是要有点自知之明！who are you?
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577178535926&di=6aad4471e9ed3a4fb3ace30795054b6b&imgtype=0&src=http%3A%2F%2Fimg01.cztv.com%2F201908%2F23%2F7e40d91198403825779d743e7b84c033.jpg)
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/Road.jpg)
 ##  敢问路在何方，路在你脚下………(放着好好的阳关大道不走,你们非要走阴沟里的独木桥:作死！)
 ![图片名称](https://imgditan2012.cang.com/201205/02/2012050221300091217327.jpg)
@@ -84,6 +85,6 @@
 ## 2020年最火中国字：SHA
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577083722800&di=1a1f4b1ee3eb074b5c22b78ad2b0c962&imgtype=0&src=http%3A%2F%2Fpic.baike.soso.com%2Fp%2F20131220%2F20131220162856-1401151506.jpg)
 
-## 世界文化商业总会：总督查：方济各、 总会长：马兴洪 !  (梦想：就开BMW X7顶级版去西藏！)
+## 世界文化商业总会：总督查：方济各、 总会长：马兴洪!(梦想：就开BMW X7顶级版去西藏)
   
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX7x.jpg)
