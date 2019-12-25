@@ -59,7 +59,7 @@
 ## 指环王三部曲：大结局！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/END.jpg)
 ## 世界文化商业总会
-![图片名称](http://pic2.cxtuku.com/00/05/97/b723b5180d0b.jpg)
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577244945219&di=63001910f2bdca0ca8987168dfb14dd1&imgtype=0&src=http%3A%2F%2Fbpic.588ku.com%2Felement_origin_min_pic%2F19%2F03%2F16%2Fe5c0cb127fc74aa92c43b57edc5fefd5.jpg)
 
                               世界文化商业总会的核心思想：仁！
                               世界文化商业总会的核心价值观：自由、民主、平等！
