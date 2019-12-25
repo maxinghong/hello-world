@@ -58,7 +58,10 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/fate_all.jpg)
 ## 指环王三部曲：大结局！
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/END.jpg)
+## 世界文化商业总会
+![图片名称](http://pic2.cxtuku.com/00/05/97/b723b5180d0b.jpg)
 
+                              世界文化商业总会的核心思想：仁！
                               世界文化商业总会的核心价值观：自由、民主、平等！
                               世界文化商业总会：总督查：方济各、 总会长：马兴洪、（1亿美金1席位）
                               世界文化商业分会：1000万美金1席位
