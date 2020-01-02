@@ -1,6 +1,6 @@
 ## 热烈庆祝世界文化商业分会（性文化）正式成立！
 
-### 2020：祝福全人类 性 福 安 康！
+### 2020：祝福全人类 性福 -> 安康！
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577940898003&di=134d915399fa33ed1826c54732fb2a70&imgtype=0&src=http%3A%2F%2Fs15.sinaimg.cn%2Fmiddle%2F472302e9gb3ce40cf0c5e%26690)
 
