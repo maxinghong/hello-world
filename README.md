@@ -18,3 +18,7 @@
 
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1577942520091&di=6e1eccb312ec3b7cf578ec7723984b2d&imgtype=0&src=http%3A%2F%2Fimg1.qunarzz.com%2Ftravel%2Fd3%2F1708%2Fe3%2F9e3cb42c56bf1ab5.jpg_r_720x480x95_dbea8551.jpg)
+
+
+### 金钱虽不是万能的，但它却又是当下衡量一个人才能高低的最直观方式！
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578023446458&di=b8f4b810340ab2cadfde67fd3cb1d8b0&imgtype=0&src=http%3A%2F%2Fimg.yzcdn.cn%2Fupload_files%2F2018%2F07%2F21%2FFgHV6sJX_VB-Nl-NFEk7wyywB2VJ.jpg%3FimageView2%2F2%2Fw%2F580%2Fh%2F580%2Fq%2F75%2Fformat%2Fjpg)
