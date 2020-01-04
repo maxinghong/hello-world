@@ -31,6 +31,11 @@
 
 
 ### 金钱虽不是万能的，但它却又是当下衡量一个人才能高低的最直观方式！
+
+### 世界文化商业总会: 总督查：方济各、总会长：马兴洪、(1亿美金一位)！
+### 世界文化商业分会: (1000万美金一位)！
+### 世界文商观察会员: (100万美金一位)！ 
+
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578023446458&di=b8f4b810340ab2cadfde67fd3cb1d8b0&imgtype=0&src=http%3A%2F%2Fimg.yzcdn.cn%2Fupload_files%2F2018%2F07%2F21%2FFgHV6sJX_VB-Nl-NFEk7wyywB2VJ.jpg%3FimageView2%2F2%2Fw%2F580%2Fh%2F580%2Fq%2F75%2Fformat%2Fjpg)
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578026699787&di=7fe6d69c77ec14408cf1951df0e752c6&imgtype=0&src=http%3A%2F%2F91cycn.37cy.com%2Fwww91cycn%2Fupload%2F12-08-12%2F13447505282201.jpg)
