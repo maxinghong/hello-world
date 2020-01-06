@@ -36,7 +36,7 @@
   
 　　虽然美国男人的小弟弟大多超过15厘米的长度，但常需要女人的帮助才能站起来，达到高潮的比率也差强人意，整个过程时间也较短。大部分美国男人的满意性行为持续不超过两分钟。一个有趣的现象是，在美国，有90％以上的女人有自慰习惯，而且自行解决时通常都能达到高潮。看来工作拼命、拿着伟哥的男人可以一边儿站了。
   
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578288338068&di=f005db07bb50cec5c55f3823d4e4ebc0&imgtype=0&src=http%3A%2F%2Fs14.sinaimg.cn%2Fbmiddle%2F49544b82459e7822e7b5d)  
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578288493792&di=15cdad4105c300864579e1f10fc4d088&imgtype=0&src=http%3A%2F%2Fwww.qhlly.com%2Ffiles%2F2014-05%2F201405260714257353.jpg)  
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578536440&di=3ddcec316cff228aacde55aac8ae6962&imgtype=jpg&er=1&src=http%3A%2F%2Fa4.att.hudong.com%2F41%2F33%2F19300544273493153257339105813.png)
 
