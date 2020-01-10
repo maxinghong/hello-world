@@ -33,7 +33,9 @@
 ![图片名称](http://www.fantiz5.com/zi/ziyuantu/e5bf85.png)
 ![图片名称](http://www.fantiz5.com/zi/ziyuantu/e69d80.png)
 
-### 梵蒂冈: 正式存档 ↑
+### 梵蒂冈: 正式存档(仅需4张) ↑
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/FMM.jpg)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/4.jpg)
 
