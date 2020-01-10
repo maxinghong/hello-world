@@ -17,7 +17,7 @@
 
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=2392559759,3191796563&fm=26&gp=0.jpg)
-### 盗用马兴洪名义者：主动还钱！
+### 盗用马兴洪名义者：主动还钱！ 马兴洪事件的唯一解决方案：金钱！都少TMD给老子扯犊子:
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
 
