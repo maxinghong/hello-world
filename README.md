@@ -1,3 +1,6 @@
+
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX7x.jpg)
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/FMM.jpg)
 
 ##   梵蒂冈正式备案  总会长：马兴洪 、总会长之女：马舒琳！
