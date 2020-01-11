@@ -1,6 +1,6 @@
 ## 世界文化商业总会 总督查：方济各 (梵蒂冈正式备案)
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX7x.jp)
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX7x.jpg)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/FMM.jpg)
 
