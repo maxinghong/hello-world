@@ -1,10 +1,10 @@
-## 世界文化商业总会 总督查：方济各
+## 世界文化商业总会 总督查：方济各 (梵蒂冈正式备案)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX7x.jp)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/FMM.jpg)
 
-##  梵蒂冈正式备案 总会长：马兴洪 、 总会长之女：马舒琳 
+## 世界文化商业总会 总会长：马兴洪 、 总会长之女：马舒琳 
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/BMWX_Me.jpg)
 
