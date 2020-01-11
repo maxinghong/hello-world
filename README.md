@@ -21,7 +21,7 @@
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
-###  平凡之路 （赠小女：马舒琳）
+###  致小女(马舒琳): 平凡之路 
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/pfzl.jpg)
 
