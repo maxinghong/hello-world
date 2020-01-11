@@ -99,6 +99,8 @@
 
 在你我的心里流动
 
+## 千载难逢的机会稍纵即逝，再错过......你们永远没机会了......（↓↓↓↓↓↓）汇款时请备注上你的姓名！
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
 ###  致小女(马舒琳): 平凡之路 
