@@ -17,5 +17,3 @@
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
 ### 汇款时请备注上你的姓名并发短信至马兴洪的手机：13775216501 
-
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/start.jpg)
