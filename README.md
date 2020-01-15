@@ -31,5 +31,5 @@
 
 ![图片名称](http://photocdn.sohu.com/20080409/Img256193605.jpg)
 
-### 独孤九剑： 第一剑 老汉推车  
+### 独孤九剑（老牛吃嫩草）： 破剑式 老汉推车  
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg)
