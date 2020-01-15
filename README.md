@@ -32,4 +32,4 @@
 ![图片名称](http://photocdn.sohu.com/20080409/Img256193605.jpg)
 
 ### 独孤九剑： 第一剑 老汗推车  
-![图片名称](https://bkimg.cdn.bcebos.com/pic/e4dde71190ef76c6bd7bbf329d16fdfaaf516779?x-bce-process=image/watermark,g_7,image_d2F0ZXIvYmFpa2U4MA==,xp_5,yp_5)
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg)
