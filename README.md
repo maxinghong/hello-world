@@ -33,3 +33,6 @@
 
 ### 独孤九剑（老牛吃嫩草）： 破剑式 老汉推车  
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/2.jpg)
+
+### 楼上那位杨振宁先生如果能再年轻20岁，我想我俩会是很好的“炮友”！很可惜啊：时光只解催人老，不信多情，长恨离亭，泪滴春衫酒易醒。
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=648787355,194252106&fm=11&gp=0.jpg)
