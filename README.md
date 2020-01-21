@@ -26,7 +26,7 @@
 
 ## 截止日期：2020年02月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会
 
-### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！) ↓↓↓
+### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) ↓↓↓
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
