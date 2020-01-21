@@ -6,7 +6,7 @@
 
 ![图片名称](http://image.11467.com/24/98/2498094231.jpg)
 
-##  who are you? 我是马兴洪(姓马 名兴洪，信仰：中华文化 提醒：我的神圣使命已经全部结束！)，下面那位是方济各（信仰：天主教），我俩是“好基友”（此基友非彼基友: 我能读懂他，他也能读懂我！）
+##  who are you? 我是马兴洪(姓马 名兴洪，信仰：中华文化)，下面那位是方济各（信仰：天主教），我俩是“好基友”（此基友非彼基友: 我能读懂他，他也能读懂我！）
 
  
 ![图片名称](http://tpic.home.news.cn/xhBlog/xhpic001/M08/87/E8/wKhTglKWwQgEAAAAAAAAAAAAAAA086.jpg)
@@ -24,7 +24,9 @@
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
-## 截止日期：2020年02月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会了 ↓↓↓
+## 截止日期：2020年02月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会
+
+### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！) ↓↓↓
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
