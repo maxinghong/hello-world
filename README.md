@@ -38,10 +38,12 @@
 
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
 
+##  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
+
+##  who are you?  
+
 ![图片名称](https://bbs-fd.zol-img.com.cn/t_s1200x5000/g4/M04/0B/0F/Cg-4WlKwAXGIXjoPAAG9AqEKgz0AAOujgHOQ8oAAb0a704.jpg)
 
-
-##  who are you?  装什么大尾巴狼......
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1579144264074&di=8fd55d758c8262404767b601050fb019&imgtype=0&src=http%3A%2F%2Fy0.ifengimg.com%2Fa%2F2015_16%2F4fe876d08fecb40.jpg)
 
-##  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
+
