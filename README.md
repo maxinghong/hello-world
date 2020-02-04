@@ -32,8 +32,6 @@
 
 ## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
 
-### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) ↓↓↓ 
-
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
 
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
@@ -46,4 +44,4 @@
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1579144264074&di=8fd55d758c8262404767b601050fb019&imgtype=0&src=http%3A%2F%2Fy0.ifengimg.com%2Fa%2F2015_16%2F4fe876d08fecb40.jpg)
 
-
+### (提醒：2019年 马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) 
