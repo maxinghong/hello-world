@@ -25,18 +25,18 @@
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888440613&di=4b6bb1ff632c42f695353a12785d39b2&imgtype=0&src=http%3A%2F%2Fp2.cri.cn%2FM00%2F3A%2F88%2FCqgNOlb0nZ6ASqx7AAAAAAAAAAA268.940x683.jpg)
 
-## 2020年02月16日 ↑↑↑ 
+## 2020年03月16日 ↑↑↑ 
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
-## 截止日期：2020年02月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会
+## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
 
-### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) ↓↓↓
+### (提醒：马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) ↓↓↓ 
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
+![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
 
-### 汇款时请备注上你的姓名并发短信至马兴洪的手机：13775216501 
+### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
 
 ![图片名称](https://bbs-fd.zol-img.com.cn/t_s1200x5000/g4/M04/0B/0F/Cg-4WlKwAXGIXjoPAAG9AqEKgz0AAOujgHOQ8oAAb0a704.jpg)
 
