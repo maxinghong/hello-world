@@ -10,6 +10,8 @@
 
 ![图片名称](http://quchaosheng.com/wp-content/uploads/2016/06/AFP5473017-e1467210713951-1024x655.jpg)
 
+##  龙城大道！
+
 ![图片名称](http://image.11467.com/24/98/2498094231.jpg)
 
 ##  who are you? 我是马兴洪(姓马 名兴洪，信仰：中华文化)，下面那位是方济各（信仰：天主教），我俩是“好基友”（此基友非彼基友: 我能读懂他，他也能读懂我！）
@@ -32,6 +34,8 @@
 
 ## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
 
+## 丹凤朝阳！
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
 
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
@@ -42,6 +46,4 @@
 
 ![图片名称](https://bbs-fd.zol-img.com.cn/t_s1200x5000/g4/M04/0B/0F/Cg-4WlKwAXGIXjoPAAG9AqEKgz0AAOujgHOQ8oAAb0a704.jpg)
 
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1579144264074&di=8fd55d758c8262404767b601050fb019&imgtype=0&src=http%3A%2F%2Fy0.ifengimg.com%2Fa%2F2015_16%2F4fe876d08fecb40.jpg)
-
-### (提醒：2019年 马兴洪个人已经实现并完成中华文化的全球宣传这个神圣使命！早已经全部结束！) 
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
