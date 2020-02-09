@@ -26,13 +26,11 @@
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888639060&di=0a6933abbebc18836f6b427dbe0c71c6&imgtype=0&src=http%3A%2F%2Fs10.sinaimg.cn%2Fmw690%2F000f4sLGgy6Gh4tRxiNf9%26690)
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888440613&di=4b6bb1ff632c42f695353a12785d39b2&imgtype=0&src=http%3A%2F%2Fp2.cri.cn%2FM00%2F3A%2F88%2FCqgNOlb0nZ6ASqx7AAAAAAAAAAA268.940x683.jpg)
-
-## 2020年03月16日 ↑↑↑ 
+ 
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
-## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
 
 ## 丹凤朝阳！
 
@@ -47,3 +45,5 @@
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
+
+## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
