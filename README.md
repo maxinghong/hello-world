@@ -1,13 +1,3 @@
-##   天子：天选之子，非天生之子！（何以证明？）
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/sj.jpg) 
-
-###  马兴洪授权梵蒂冈制作“这道圣旨”（一式二份），未来会有读懂梵蒂冈及中华文化之人来取这一道圣旨！(也许100年也许500年以后)
-
-###  仅传旨于读懂之人（可不是什么鸡鸣狗盗之辈能读懂的！）
-
-###  ↑↑↑ 给梵蒂冈出一道哲学思辩题？总分100分！
-
-
 ![图片名称](http://quchaosheng.com/wp-content/uploads/2016/06/AFP5473017-e1467210713951-1024x655.jpg)
 
 ##  龙城大道！
@@ -40,12 +30,11 @@
 
 ![图片名称](https://bbs-fd.zol-img.com.cn/t_s1200x5000/g4/M04/0B/0F/Cg-4WlKwAXGIXjoPAAG9AqEKgz0AAOujgHOQ8oAAb0a704.jpg)
 
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
 
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
-
-![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
 ##  who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
