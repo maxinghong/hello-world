@@ -34,6 +34,10 @@
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
+
+
+## 截止日期：2020年06月01日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
+
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
 
 ### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
@@ -42,4 +46,4 @@
 ##  who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
 
-## 截止日期：2020年03月15日,千载难逢的机会稍纵即逝,再错过:你们永远没机会（全球通用）
+
