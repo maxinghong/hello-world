@@ -37,16 +37,15 @@
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
-## 截止日期：2020年06月01日 （全球通用）
+## 截止日期：2020年06月01日 （全球通用:可以PAYPAL汇款，也可以银行卡转账汇款）汇款时请备注上你的姓名！
 
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/paypal.jpg)
+## PAYPAL汇款: https://www.paypal.me/maxinghong
 
-### PAYPAL汇款时请备注上你的姓名！（适用全世界） 
+ 
+## 银行卡转账汇款: 中国建设银行 账户：马兴洪  账号：6217 0012 6001 9967 606    
 
 
-##  who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
-![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/bankcard.jpg)
-
+### who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
 
 
 ## 歌功颂德
