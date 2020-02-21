@@ -1,3 +1,6 @@
+##  影视王朝！
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1582283584288&di=26436db56c862c88d6ecd30bb1a81b37&imgtype=jpg&src=http%3A%2F%2Fimg4.imgtn.bdimg.com%2Fit%2Fu%3D1415817234%2C523437202%26fm%3D214%26gp%3D0.jpg)
+
 ##  龙城大道！
 
 ![图片名称](http://quchaosheng.com/wp-content/uploads/2016/06/AFP5473017-e1467210713951-1024x655.jpg)
@@ -46,6 +49,9 @@
 
 
 ### who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
+
+
+
 
 
 ## 歌功颂德
