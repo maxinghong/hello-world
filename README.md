@@ -30,6 +30,8 @@
 
 ### 丹羽圗成势欲飞 梧桐百尺已多围 露生碧汉流文彩 日出沧溟覧朝晖 盛代鸣时原是瑞 高岗立处自成威
 
+![图片名称](http://xj.cnr.cn/2014xjfw/2014xjfwws/20151201/W020151201427990824508.jpeg)
+
 ![图片名称](https://bbs-fd.zol-img.com.cn/t_s1200x5000/g4/M04/0B/0F/Cg-4WlKwAXGIXjoPAAG9AqEKgz0AAOujgHOQ8oAAb0a704.jpg)
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
