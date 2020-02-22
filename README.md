@@ -1,6 +1,6 @@
 ##  影视王朝！
 
-![图片名称](http://5b0988e595225.cdn.sohucs.com/images/20190528/7b39c0f024094dd9bb73b9b393b2e9c0.jpeg)
+![图片名称](http://n.sinaimg.cn/translate/450/w1500h2150/20190423/HSW4-hvvuiyn7338188.jpg)
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888639060&di=0a6933abbebc18836f6b427dbe0c71c6&imgtype=0&src=http%3A%2F%2Fs10.sinaimg.cn%2Fmw690%2F000f4sLGgy6Gh4tRxiNf9%26690)
 
