@@ -49,6 +49,7 @@
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
+
 ## 截止日期：2020年06月01日 （全球通用:可以PAYPAL汇款，也可以银行卡转账汇款）汇款时请备注上你的姓名！
 
 ## PAYPAL汇款: https://www.paypal.me/maxinghong
@@ -60,7 +61,7 @@
 ### who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
 
 
-
+![图片名称](http://img.mm52.com/j/james_cameron/james_cameron.jpg)
 
 
 ## 歌功颂德
