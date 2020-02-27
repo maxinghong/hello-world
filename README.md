@@ -23,6 +23,8 @@
 
 ##  影视王朝！
 
+![图片名称](http://a3.att.hudong.com/58/59/50200009239445156202594234756_s.jpg)
+
 ![图片名称](https://gss1.bdstatic.com/-vo3dSag_xI4khGkpoWK1HF6hhy/baike/crop%3D0%2C0%2C660%2C933%3Bh%3D780%3Bq%3D70/sign=8ead062bf7dcd100d9d3a2614fbb6b20/d439b6003af33a875c3aac3cc95c10385343b545.jpg)
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888639060&di=0a6933abbebc18836f6b427dbe0c71c6&imgtype=0&src=http%3A%2F%2Fs10.sinaimg.cn%2Fmw690%2F000f4sLGgy6Gh4tRxiNf9%26690)
@@ -49,8 +51,8 @@
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
 
-
-## 截止日期：2020年06月01日 （全球通用:可以PAYPAL汇款，也可以银行卡转账汇款）汇款时请备注上你的姓名！
+##   截止日期：2021年01月01日 
+### （全球通用:可以PAYPAL汇款，也可以银行卡转账汇款）汇款时请备注上你的姓名！
 
 ## PAYPAL汇款: https://www.paypal.me/maxinghong
 
@@ -58,7 +60,7 @@
 ## 银行卡转账汇款: 中国建设银行 账户：马兴洪  账号：6217 0012 6001 9967 606    
 
 
-### who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推......
+### who are you?  钱：你们肯定而且必须是要给的！否则我们永远是敌人！中国有句老话：墙倒众人推！
 
 
 ![图片名称](http://img.mm52.com/j/james_cameron/james_cameron.jpg)
