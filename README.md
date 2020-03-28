@@ -21,7 +21,12 @@
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
-##  影视王朝！
+##  影视听王朝！
+
+### we are the world ！
+![图片名称](http://images2.fanpop.com/images/photos/7600000/We-Are-The-World-michael-jackson-7644297-432-550.jpg)
+
+![图片名称](http://img0.pconline.com.cn/pconline/1212/12/3108530_100.jpg)
 
 ![图片名称](https://gss1.bdstatic.com/-vo3dSag_xI4khGkpoWK1HF6hhy/baike/crop%3D0%2C0%2C660%2C933%3Bh%3D780%3Bq%3D70/sign=8ead062bf7dcd100d9d3a2614fbb6b20/d439b6003af33a875c3aac3cc95c10385343b545.jpg)
 
