@@ -21,7 +21,11 @@
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
-##  影视听书王朝！
+##  影视听书王朝 ( 客座教授：马兴洪 ) ！
+
+##  给哈佛大学、斯坦福大学、麻省理工学院、耶鲁大学出一道论文题？新三体论（宗教、哲学、科学）  总分：100份！
+
+### 提醒：如果您的论文能达到国际顶级水平：我坚信 梵蒂冈 会永久收录并珍藏！
 
 ### we are the world ！
 ![图片名称](http://images2.fanpop.com/images/photos/7600000/We-Are-The-World-michael-jackson-7644297-432-550.jpg)
