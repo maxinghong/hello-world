@@ -21,7 +21,7 @@
 
 ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=1689638707,2074036102&fm=26&gp=0.jpg)
 
-##  影视听王朝！
+##  影视听书王朝！
 
 ### we are the world ！
 ![图片名称](http://images2.fanpop.com/images/photos/7600000/We-Are-The-World-michael-jackson-7644297-432-550.jpg)
@@ -32,13 +32,19 @@
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888639060&di=0a6933abbebc18836f6b427dbe0c71c6&imgtype=0&src=http%3A%2F%2Fs10.sinaimg.cn%2Fmw690%2F000f4sLGgy6Gh4tRxiNf9%26690)
 
+![图片名称](https://img11.360buyimg.com/n1/jfs/t235/331/2166786177/260222/f8f200a7/5406fb91Ne6cf2084.jpg)
+
 ![图片名称](https://tse3-mm.cn.bing.net/th?id=OIP.KxTVZDacwzaCdmGL3aENvwHaFL&pid=Api&rs=1)
 
 ![图片名称](http://a3.att.hudong.com/58/59/50200009239445156202594234756_s.jpg)
 
+![图片名称](https://img13.360buyimg.com/n1/g10/M00/1D/11/rBEQWVNgZhMIAAAAAACFro_o6EYAAFykAGR5TEAAIXG663.jpg)
+
 ![图片名称](https://tse1-mm.cn.bing.net/th?id=OIP.DDlP9VaMRIJGAVFhDdcw6wHaD3&pid=Api&rs=1)
 
 ![图片名称](http://images.entgroup.cn/group2/M00/00/47/wKgAS1znyYKAZ5ZbAABmGebFNNg474.jpg)
+
+![图片名称](https://img1.doubanio.com/lpic/s3442639.jpg)
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1578888440613&di=4b6bb1ff632c42f695353a12785d39b2&imgtype=0&src=http%3A%2F%2Fp2.cri.cn%2FM00%2F3A%2F88%2FCqgNOlb0nZ6ASqx7AAAAAAAAAAA268.940x683.jpg)
 
