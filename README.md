@@ -1,6 +1,6 @@
 ##  龙城大道！
 
-![图片名称](http://quchaosheng.com/wp-content/uploads/2016/06/AFP5473017-e1467210713951-1024x655.jpg)
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=835211012,3733589545&fm=11&gp=0.jpg)
 
 ### 山不在高，有仙则名；水不在深，有龙则灵；斯是陋室，惟吾德馨；苔痕上阶绿，草色入帘青；谈笑有鸿儒，往来无白丁；可以调素琴，阅金经。
 
