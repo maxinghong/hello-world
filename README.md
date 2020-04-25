@@ -103,11 +103,18 @@
 
 ![图片名称](https://img12.360buyimg.com/n1/jfs/t13231/300/1292545510/509289/d4308c56/5a1e1ce8Nf5b338a9.jpg)
 
+![图片名称](https://n.sinaimg.cn/sinakd2020424s/199/w600h399/20200424/7b26-isqivxh8217707.jpg)
+
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1586014748776&di=faf90ebf88111bfd6f372abfa61927b9&imgtype=0&src=http%3A%2F%2Fsite.yingkelawyer.com%2Fupload%2Fimage%2F20160104%2F20160104113911_0196.jpg)
 ### 友请（1）号女嘉宾
 ![图片名称](http://thumb.takefoto.cn/wp-content/uploads/2019/12/201912100309314352-680x453.jpg)
 
-### 心动女生：桑娜·马林 ！ 赠 心动女生 4个字：《画龙点睛》! （这4个字，保守估计：最低市场价值1000万美金）
+### 心动女生：桑娜·马林 ！ 赠 心动女生 4个字：《画龙点睛》! 
+
+### 这4个字，目前保守估计：最低市场价值2000万美金
+
+                           2020年05月01日
+                              马兴洪
 
 ![图片名称](http://pic.baike.soso.com/p/20121007/20121007054704-575499965.jpg)
 
