@@ -123,6 +123,7 @@
 
                            2020年05月01日
                               马兴洪
+                             梵蒂冈备案
 
 ![图片名称](http://pic.baike.soso.com/p/20121007/20121007054704-575499965.jpg)
 
@@ -137,3 +138,5 @@
 ## 戴丹阳眼镜，看世界风情; 以常州龙城，显中华文化！ 
 
 ![图片名称](https://raw.githubusercontent.com/maxinghong/maxinghong.github.io/master/mxh.jpg)
+
+## 提醒：只有且经过梵蒂冈备案存档的为有效文件！反之无效：全是盗用马兴洪的名义，一分钱不值！
