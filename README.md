@@ -7,8 +7,12 @@
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1589597795792&di=1ec6355356112255ff5f9fd1ca77cf28&imgtype=0&src=http%3A%2F%2Fimg3.imgtn.bdimg.com%2Fit%2Fu%3D3958366423%2C2520276372%26fm%3D214%26gp%3D0.jpg)
 
+### 老生常谈:盗版=自欺欺人；正版=物超所值！
+
 ## 指定汇款账号 ↓ 
 
 ### 银行卡转账汇款: 中国建设银行 账户：马兴洪  账号：6217 0012 6001 9967 606   
 
 ### PAYPAL汇款: https://www.paypal.me/maxinghong
+
+### 提醒：只有且经过梵蒂冈备案存档的为有效文件！反之无效：全是盗用马兴洪的名义，一分钱不值！
