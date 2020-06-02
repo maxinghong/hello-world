@@ -18,4 +18,4 @@
 
 ### 银行卡转账汇款: 中国建设银行 账户：马兴洪  账号：6217 0012 6001 9967 606   
 
-### PAYPAL汇款: https://www.paypal.me/maxinghong
+ 
