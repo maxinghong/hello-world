@@ -4,7 +4,9 @@
 ![图片名称](http://vpic.video.qq.com/3388556/x0545zrwx3k_ori_3.jpg)
 ##  方证大师:方济各、风清扬：马兴洪、令狐聪：格蕾塔·桑伯格!
                              
-                                   
+独孤九剑的第四剑（破枪式）：君子爱财,取之有道; 视之有度,用之有节！
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1591895649711&di=776e7d23b16ea2373e9a4c2dc5f7d612&imgtype=0&src=http%3A%2F%2Fimg1.imgtn.bdimg.com%2Fit%2Fu%3D2945003646%2C3753493871%26fm%3D214%26gp%3D0.jpg)
+
 独孤九剑的第三剑（破刀式）：神龙摆尾！
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1591791219800&di=52ca06f6059e9cf479c16002ef654117&imgtype=0&src=http%3A%2F%2Fwww.41111.com%2Fkindeditor.4.1%2Fasp.net%2F..%2Fattached%2Fimage%2F20150814%2F20150814092416_1163.jpg)
 
