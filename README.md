@@ -1,8 +1,10 @@
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=570600743,1773324529&fm=15&gp=0.jpg)
 ### 格蕾塔·桑伯格：从今天起，你的中文名字就叫：令狐聪！希望你好好领悟这三个字的含义！ 
 
-![图片名称](http://vpic.video.qq.com/3388556/x0545zrwx3k_ori_3.jpg)
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=2604791946,3750238047&fm=26&gp=0.jpg)
 ##  方证大师:方济各、风清扬：马兴洪、令狐聪：格蕾塔·桑伯格!
+
+独孤九剑的第五剑（破鞭式）：亢龙有悔！
                              
 独孤九剑的第四剑（破枪式）：君子爱财,取之有道; 视之有度,用之有节！
 
