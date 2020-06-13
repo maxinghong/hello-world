@@ -1,3 +1,4 @@
+![图片名称](https://ss0.bdstatic.com/70cFuHSh_Q1YnxGkpoWK1HF6hhy/it/u=3843900652,2817537250&fm=26&gp=0.jpg)
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=570600743,1773324529&fm=15&gp=0.jpg)
 
@@ -52,14 +53,10 @@
  ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1591084101933&di=b043fe4e670d6ce502d507d2cffa3470&imgtype=0&src=http%3A%2F%2Fwww.c-can.cn%2Fmedia%2Fkindeditor%2F2019%2F11%2Fa5589956-012f-11ea-8a0d-00163e162cba.png)
 
 
-## 再次重申：无论是中国还是国外，只要没有经过马兴洪公开认证及公开授权过的作品，全是盗版及假货：都视为一分钱不值！贵重文档资料都已经全部公开并提交至梵蒂冈备案存档！没有公开或提交至梵蒂冈备案存档的资料都只仅作为：免费为世界文化广告宣传！ 另外警告那些造假的死不悔改之人：如果你想作死，我绝不拦你！
-
-                                                                                  2020年06月06日
-                                                                                   风清扬：马兴洪
-
-                
-
 
 
 ![图片名称](http://pic.dbw.cn/0/03/98/05/3980571_949139.jpg)
 
+##  who are you？ 
+
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1592052614260&di=56651fbac80824c3815e86dbf7a4f686&imgtype=0&src=http%3A%2F%2Fimg3.doubanio.com%2Fview%2Fnote%2Fl%2Fpublic%2Fp45651514.jpg)
