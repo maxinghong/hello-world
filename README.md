@@ -33,6 +33,12 @@
                                                        梵蒂冈备案存档
 
 
+ 
+ ![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3089020702,3750714117&fm=11&gp=0.jpg)
+
+
+![图片名称](http://pic.dbw.cn/0/03/98/05/3980571_949139.jpg)
+
 ##  我的生意经：无为！
 
 ##  我是风清扬（马兴洪）：只是一位生意人！
@@ -48,14 +54,6 @@
 ### 如果你想投资我，都要先预约汇款（金额：看你的诚意），指定预约汇款账号（ ↓ ） 
 
 ### 银行卡转账汇款: 中国建设银行 账户：马兴洪  账号：6217 0012 6001 9967 606   
-
- 
- ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1591084101933&di=b043fe4e670d6ce502d507d2cffa3470&imgtype=0&src=http%3A%2F%2Fwww.c-can.cn%2Fmedia%2Fkindeditor%2F2019%2F11%2Fa5589956-012f-11ea-8a0d-00163e162cba.png)
-
-
-
-
-![图片名称](http://pic.dbw.cn/0/03/98/05/3980571_949139.jpg)
 
 ##  who are you？ 
 
