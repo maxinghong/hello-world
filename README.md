@@ -2,7 +2,8 @@
 
   ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=2741881384,2023357715&fm=26&gp=0.jpg)
   
-  
+ ##  格蕾塔·桑伯格：你帮我问问那些还想找我的人:只要问他们敢公开向全世界宣誓否（......）？ 
+ 
  ![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3089020702,3750714117&fm=11&gp=0.jpg)
 
 ##  我是风清扬（马兴洪）：只是一位生意人！
