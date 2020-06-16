@@ -1,9 +1,6 @@
  
  ![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3089020702,3750714117&fm=11&gp=0.jpg)
 
-
- ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1592053570063&di=17c476df705f7f2619fe861dbe0c70aa&imgtype=0&src=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20181223%2F6fc7602aab2b4d619c4397250b030964.jpeg)
- 
 ##  我是风清扬（马兴洪）：只是一位生意人！
 
 ##  欢迎全球的投资者（目前只有金融投资类的项目，其它：一律免谈）！
