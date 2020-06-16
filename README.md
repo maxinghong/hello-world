@@ -1,4 +1,8 @@
- 
+##  夫轻诺必寡信，失道者必寡助！
+
+  ![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=2741881384,2023357715&fm=26&gp=0.jpg)
+  
+  
  ![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3089020702,3750714117&fm=11&gp=0.jpg)
 
 ##  我是风清扬（马兴洪）：只是一位生意人！
