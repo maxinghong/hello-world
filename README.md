@@ -3,7 +3,7 @@
 
 ### XXX金融投资工作室正式成立！投资方：马兴洪(自有资金)！工作室成员：马兴洪！
 
-### 指定工作服：![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593959527149&di=5a8fdd83356ee4d1068c44d9a909e8da&imgtype=0&src=http%3A%2F%2Fimg4.imgtn.bdimg.com%2Fit%2Fu%3D1652696394%2C2201781423%26fm%3D214%26gp%3D0.jpg)
+##  指定工作服->：![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593959527149&di=5a8fdd83356ee4d1068c44d9a909e8da&imgtype=0&src=http%3A%2F%2Fimg4.imgtn.bdimg.com%2Fit%2Fu%3D1652696394%2C2201781423%26fm%3D214%26gp%3D0.jpg)
 
 ##  欢迎全球的投资者（目前只有金融投资类的项目，其它：一律免谈）！
 
