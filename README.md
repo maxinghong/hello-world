@@ -37,3 +37,9 @@
 
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593966599624&di=bdc97ce913e4aff507dabf6fbdbe45c2&imgtype=0&src=http%3A%2F%2Fwww.kfzimg.com%2FW02%2F8d%2F8a%2F8d8aed61dd0e63e00fd393514a9f0845_b.jpg)
+
+##  方证大师（方济各）：麻烦你把这部<易经>转交给令狐聪(格雷塔.桑伯格),并签署上您的大师姓名!对令狐聪的寄语：希望您有缘好好研修中文，有缘能参悟易经之智慧，有缘能把中华文化发扬光大！
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999)_10000&sec=1594353553022&di=2c2d0c20869c244a1a2e86f53593ca4d&imgtype=0&src=http%3A%2F%2Fp1.ifengimg.com%2Fa%2F2017_37%2F349b86ec0bc5ca6_size53_w608_h435.jpg)
+
+
+
