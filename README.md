@@ -14,6 +14,9 @@
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=4001947757,188900419&fm=26&gp=0.jpg)
 
+ ##  易经之道： 明易者 ，易为师 ; 通易者 ，易为商 ！ 
+
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595053346275&di=8b26d16f1b53728e50920fa26ffdb692&imgtype=0&src=http%3A%2F%2Fp0.so.qhimgs1.com%2Ft01f42e8709ad2bca6c.jpg)
 
                                                          2020年07月05日
                                                          风清扬：马兴洪 
@@ -27,7 +30,7 @@
 
 ##  XXX金融投资工作室正式成立！ 投资方：马兴洪(自有资金)！ 工作室成员：马兴洪！
 
-##  XXX金融投资工作室文化：易经 < 明易者 ，易为师 ; 通易者 ，易为商 ！>
+##  XXX金融投资工作室文化：《易经》！
 
  
 ##  指定工作服->：![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593960120022&di=86ab8bd523e4f438b408ad5706c6b598&imgtype=0&src=http%3A%2F%2Fimg14.360buyimg.com%2Fn1%2Fs350x449_jfs%2Ft16750%2F349%2F1482944821%2F322663%2Fec59eeb%2F5acc4711N273da68e.jpg%2521cc_350x449.jpg)
