@@ -6,15 +6,20 @@
 
 ###  易：一也，一后有二(- -) ， 二(- -) 后有三![图片名称](https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=4252246436,3176934610&fm=26&gp=0.jpg)
 
-###  三后有四[图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=2555533618,366837278&fm=26&gp=0.jpg) 
+
+###  三后有四![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=2555533618,366837278&fm=26&gp=0.jpg)
+
 
 ###  四后有五，五后有六......故：爻象为中华文化语言文字之母（道生一、一生二、二生三、三生万物）！
 
 ###  爻再生卦：卦中有爻，爻中系卦，宇宙天地，包罗万象！
 
-[图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3415270215,2204104306&fm=26&gp=0.jpg)
 
-[图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=2487844423,1887284738&fm=26&gp=0.jpg) 
+![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3415270215,2204104306&fm=26&gp=0.jpg)
+
+
+![图片名称](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=2487844423,1887284738&fm=26&gp=0.jpg)
+
 
 ##  《易经》为何为大道之源？ 
 ![图片名称](https://ss0.bdstatic.com/70cFuHSh_Q1YnxGkpoWK1HF6hhy/it/u=2160663814,3492482038&fm=26&gp=0.jpg)
