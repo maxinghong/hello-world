@@ -47,7 +47,7 @@
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595053346275&di=8b26d16f1b53728e50920fa26ffdb692&imgtype=0&src=http%3A%2F%2Fp0.so.qhimgs1.com%2Ft01f42e8709ad2bca6c.jpg)
 
-##  易经感悟：春夏秋冬，暑往寒来; 日月星辰，斗转星移; 人生岁月，变化无常; 山还是山， 水还是水！
+##  易经感悟：春夏秋冬， 暑往寒来; 日月星辰， 斗转星移; 人生岁月， 变化无常; 山还是山， 水还是水！
 
 
                                                          2020年07月05日
@@ -91,4 +91,3 @@
                                                      浊酒趁年华、清茶尽余欢
 
 
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595060204895&di=8bcb7cf06118d05d6d38a32357879c35&imgtype=0&src=http%3A%2F%2Fbpic.588ku.com%2Fback_pic%2F03%2F74%2F44%2F6357bc36bfb66b3.jpg%2521r850%2Ffw%2F800)
