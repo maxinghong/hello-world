@@ -38,11 +38,17 @@
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=4001947757,188900419&fm=26&gp=0.jpg)
 
+###  无极而太极：太极动而生阳,动极而静,静而生阴,静极复动，一动一静,互为其根！
+
+![图片名称](https://ss2.bdstatic.com/70cFvnSh_Q1YnxGkpoWK1HF6hhy/it/u=201320582,3293173914&fm=26&gp=0.jpg)![图片名称](https://ss0.bdstatic.com/70cFuHSh_Q1YnxGkpoWK1HF6hhy/it/u=4109937544,2958242044&fm=26&gp=0.jpg)
 
 ##  易经之道： 明易者 ，易为师 ; 通易者 ，易为商 ！ 
  
 
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595053346275&di=8b26d16f1b53728e50920fa26ffdb692&imgtype=0&src=http%3A%2F%2Fp0.so.qhimgs1.com%2Ft01f42e8709ad2bca6c.jpg)
+
+
+
 
                                                          2020年07月05日
                                                          风清扬：马兴洪 
