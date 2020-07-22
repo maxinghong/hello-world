@@ -60,8 +60,9 @@
 
 ![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=1528943626,472704053&fm=26&gp=0.jpg)
 
+##  对令狐聪(格雷塔.桑伯格)的寄语：希望您有缘好好研修中文，有缘能参悟易经之智慧，有缘能把中华文化发扬光大！
 
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595005711300&di=e01b1a3ccbb1f91334e6c2f15aa9284e&imgtype=0&src=http%3A%2F%2Fimg4.99114.com%2Fgroup1%2FM00%2F3A%2FC4%2FwKgGMFctfLKAYOU8AACcTy6iYkY149_600_600.jpg)
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595260096968&di=29481a6eaa8d45e8c597fe7d78910be3&imgtype=0&src=http%3A%2F%2Fi.zhulanli.com%2Fssp%2F16670%2Fma%2FC4A5A913-355E-4C1E-8873-0E20B53E5549.jpg)
 
 
 ##  我是风清扬(马兴洪)，携大女儿(马舒琳)->平凡之路：浊酒趁年华、清茶尽余欢 ！
