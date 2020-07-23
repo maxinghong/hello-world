@@ -71,6 +71,8 @@
 
 ##  XXX金融投资工作室文化：《易经》！
 
+##  工作室核心价值观：即济、未济 ！
+![图片名称](https://ss1.bdstatic.com/70cFvXSh_Q1YnxGkpoWK1HF6hhy/it/u=4239368828,3081906639&fm=26&gp=0.jpg)
  
 ##  指定工作服->：![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593960120022&di=86ab8bd523e4f438b408ad5706c6b598&imgtype=0&src=http%3A%2F%2Fimg14.360buyimg.com%2Fn1%2Fs350x449_jfs%2Ft16750%2F349%2F1482944821%2F322663%2Fec59eeb%2F5acc4711N273da68e.jpg%2521cc_350x449.jpg)
 
