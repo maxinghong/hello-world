@@ -1,10 +1,7 @@
-                                                     
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595005711300&di=e01b1a3ccbb1f91334e6c2f15aa9284e&imgtype=0&src=http%3A%2F%2Fimg4.99114.com%2Fgroup1%2FM00%2F3A%2FC4%2FwKgGMFctfLKAYOU8AACcTy6iYkY149_600_600.jpg)
 
+##  妍琳金融投资工作室 正式成立！ 
 
-##  我是风清扬(马兴洪)，携大女儿(马舒琳)->平凡之路：浊酒趁年华、清茶尽余欢 ！
-
-##  妍琳金融投资工作室正式成立！ 投资方：马兴洪(自有资金)！ 工作室成员：马兴洪！
+##  投资方：马兴洪(自有资金)！ 工作室成员：马兴洪！
 
 ##  妍琳金融投资工作室文化：《易经》！
 
