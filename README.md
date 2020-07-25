@@ -8,8 +8,13 @@
 ##  妍琳金融投资工作室核心价值观：即济、未济 ！
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=919870039,2863267181&fm=26&gp=0.jpg)
  
+ 
 ##  指定工作服：
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593960120022&di=86ab8bd523e4f438b408ad5706c6b598&imgtype=0&src=http%3A%2F%2Fimg14.360buyimg.com%2Fn1%2Fs350x449_jfs%2Ft16750%2F349%2F1482944821%2F322663%2Fec59eeb%2F5acc4711N273da68e.jpg%2521cc_350x449.jpg)
+
+##   妍琳金融投资工作室之终极目标：入驻斯坦福大学商学院最顶级商业实战教学案例！
+
+
 
 
                                                          2020年06月19日
@@ -49,3 +54,6 @@
 
 
 ![图片名称](https://ss1.bdstatic.com/70cFvXSh_Q1YnxGkpoWK1HF6hhy/it/u=1115293835,1262328104&fm=26&gp=0.jpg)
+
+
+##  希望<斯坦福大学商学院>全体师生：有缘能思考一下<妍琳金融投资工作室>商业运营之思路？
