@@ -57,3 +57,8 @@
 
 
 ##  希望<斯坦福大学商学院>全体师生：有缘能思考一下<妍琳金融投资工作室>商业运营之思路？
+
+##  寄语<斯坦福大学商学院>全体师生：何为改变(造)世界：首先要能影响世界，其次要能引领世界，最终要能造福世界！
+
+
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1595613528780&di=a33e489f6aed41d4e742b6898b8f98cf&imgtype=0&src=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fq_70%2Cc_zoom%2Cw_640%2Fimages%2F20180404%2Fa45b8d31d194428f8707875b3038efcf.jpeg)
