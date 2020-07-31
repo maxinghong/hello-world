@@ -12,7 +12,9 @@
 ##  指定工作服：
 ![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1593960120022&di=86ab8bd523e4f438b408ad5706c6b598&imgtype=0&src=http%3A%2F%2Fimg14.360buyimg.com%2Fn1%2Fs350x449_jfs%2Ft16750%2F349%2F1482944821%2F322663%2Fec59eeb%2F5acc4711N273da68e.jpg%2521cc_350x449.jpg)
 
-##   妍琳金融投资工作室之终极目标：入驻斯坦福大学商学院最顶级商业实战教学案例！
+##   妍琳金融投资工作室之终极目标：<永驻>斯坦福大学商学院(最顶级商业实战教学案例)！
+
+![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1596022892692&di=b4ecbb7a46a188a5ac92e5bc1f5a684c&imgtype=0&src=http%3A%2F%2Fwww.shufalu.com%2Fuploads%2Fallimg%2F130930%2F1_130930103504_1.jpg)
 
 
 
