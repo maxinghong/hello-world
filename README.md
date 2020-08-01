@@ -29,10 +29,6 @@
 
 
 
-![图片名称](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=2213876202,1958213163&fm=11&gp=0.jpg)
-
-
-
 
 
 ##  欢迎全球的投资者（目前只有金融投资类的项目，其它：一律免谈）！
