@@ -1,4 +1,9 @@
 
+##  不经历风雨 怎么见彩虹 没有人能随随便便成功
+
+![图片名称](http://tiebapic.baidu.com/forum/w%3D580/sign=36130242bc18972ba33a00c2d6cd7b9d/ee2640a7d933c8953746a62dc61373f0820200aa.jpg)
+
+
 ##  妍琳金融投资工作室 正式成立！ 
 
 ##  投资方：马兴洪(自有资金)！ 工作室成员：马兴洪！
@@ -28,7 +33,7 @@
 
 
 
-
+![图片名称](http://tiebapic.baidu.com/forum/w%3D580/sign=ee21a07e802bd40742c7d3f54b899e9c/a3a5db33c895d1434a4eda7564f082025aaf07aa.jpg)
 
 
 ##  欢迎全球的投资者（目前只有金融投资类的项目，其它：一律免谈）！
