@@ -25,7 +25,7 @@
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=3708693372,2742321346&fm=15&gp=0.jpg)
 
-###  我再透露个小秘密：天道酬勤 宁静致远 就这短短8个字，目前的真实市场价值保守估计最低已经远超1000万RMB！
+###  我再透露个小秘密：天道酬勤 宁静致远 就这短短8个字，目前的真实市场价值保守估计最低已经远超1000万美金！
 
 ![图片名称](http://tiebapic.baidu.com/forum/w%3D580/sign=fc20901dcdb44aed594ebeec831d876a/f2d7fdedab64034f02c85151b8c379310a551d08.jpg)
 
