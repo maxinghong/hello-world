@@ -2,7 +2,7 @@
 
 ###   郑重重申：无论是中国还是国外，只要没有经过马兴洪公开认证及公开授权过的作品，全是盗版及假货：都视为一分钱不值！另外,以前乃至现在，网上公开的一些图文影像资料仅作为：免费为世界文化广告宣传！ 
 
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1597379891604&di=74ab610bfa1ed9ebe1d0cfe1f7096687&imgtype=0&src=http%3A%2F%2Fmpic.haiwainet.cn%2Fthumb%2Fd%2Fuploadfile%2F20190430%2F1556592619517973%2Cw_480.jpg)
+![图片名称](http://5b0988e595225.cdn.sohucs.com/images/20190515/136a24cace084c6694e5e5a69161bbbc.jpeg)
 
 ##   欢迎全球的投资者：(2021年)带钱来洽谈投资: 目前只有   XXX金融投资+   类的实战商业项目，其它：一律免谈 (另外：该项目独立运行，与妍琳金融投资工作室无关)！
 
@@ -29,7 +29,7 @@
 
 ![图片名称](https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=3708693372,2742321346&fm=15&gp=0.jpg)
 
-###  我再透露个小秘密：天道酬勤 宁静致远 就这短短8个字，目前的真实市场价值保守估计最低已经远超1000万美金！
+###  我再透露个小秘密：天道酬勤 宁静致远 就这短短8个字，目前的真实市场价值保守估计最低已经远超2000万美金！
 
 ![图片名称](http://tiebapic.baidu.com/forum/w%3D580/sign=fc20901dcdb44aed594ebeec831d876a/f2d7fdedab64034f02c85151b8c379310a551d08.jpg)
 
