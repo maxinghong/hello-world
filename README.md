@@ -16,3 +16,6 @@
  
                                           2020年09月01日
                                               马兴洪
+
+##   提醒：爱迪生密码图全球仅一份 ！ 特此全球公告：此爱迪生密码图已经生成，不会有任何参数与属性更改（如果此图将来有变动，绝对是恶意偷盗行为）！
+![图片名称](http://tiebapic.baidu.com/forum/w%3D580/sign=a609cc8661c6a7efb926a82ecdfaafe9/0b9bd6a20cf431ad8af72a605c36acaf2edd986a.jpg)
