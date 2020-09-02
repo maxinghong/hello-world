@@ -29,6 +29,7 @@ XXX金融投资+   指定专车：奔驰 AMG S63
 ###  注意：
 
     马兴洪的工作职责:XXX金融投资+ 类的实战商业项目顾问 及 奔驰 AMG S63 驾驶员！
+    
     马兴洪不会参与XXX金融投资+ 的日常运营（该项目的日常运营由所招聘的5位核心团队成员负责）！
     
  
@@ -45,10 +46,3 @@ XXX金融投资+   指定专车：奔驰 AMG S63
                                           2020年09月01日
                                               马兴洪
 
-
-
-![图片名称](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1598956765057&di=02d8b1330380f543c882e8f7e0d7ca19&imgtype=0&src=http%3A%2F%2Fimg2.99114.com%2Fgroup1%2FM00%2F3A%2FC4%2FwKgGMFctfLKAYOU8AACcTy6iYkY149_600_600.jpg)
-
-##   注意：妍琳金融投资工作室没有任何招聘计划并且指定工作服如下图：
-
-![图片名称](https://ss1.bdstatic.com/70cFvXSh_Q1YnxGkpoWK1HF6hhy/it/u=36822410,1369585877&fm=26&gp=0.jpg)
